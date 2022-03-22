@@ -3,7 +3,7 @@
    You can adapt this file completely to your liking, but it should at least
    contain the root `toctree` directive.
 
-Download GB WhatsApp APK Official Terbaru 2022
+8 Fitur WhatsApp dari Fouad Mods Official Terbaru 2022
 ==================
 
 Hampir semua orang kini menggunakan WhatsApp sebagai aplikasi chatting utama di HP, namun seiring berjalannya waktu banyak pula yang menggunakan aplikasi mod seperti Fouad WhatsApp. Hal ini bukan tanpa alasan, melainkan Fouad WA dinilai lebih bagus dan praktis untuk digunakan.
